@@ -14,6 +14,7 @@
 * 🔧 Previously: Software Developer @ BMO Financial Group, Digital Core Vulnerability Management Team
 
 #### 🌟 Personal Passions
-
+*🏎️ Formula 1
+*🛫 Aviation
 
 ### 💻 Featured Projects
