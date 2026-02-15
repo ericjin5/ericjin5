@@ -16,5 +16,3 @@
 #### 🌟 Personal Passions
 * 🏎️ Formula 1
 * 🛫 Aviation
-
-### 💻 Featured Projects
